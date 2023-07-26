@@ -1,1 +1,1 @@
-shine teach not give lucky swim growth liquid attack can idea wood grandmother coat market
+warm shade nature wind nature get wet anything choice score mark chapter variety wooden fairly
