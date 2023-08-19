@@ -1,1 +1,1 @@
-rose this some religious late threw pick dog deer dried vowel paid corner drawn slight
+foot announced remain shown pair officer map state wooden dirt discuss chain business rain war
