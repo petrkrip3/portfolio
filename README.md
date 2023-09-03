@@ -1,1 +1,1 @@
-distance clearly rough got porch teach outer rod industry gone however discover crack country noun
+lungs shells may process breakfast hole fill court owner badly voice expression grain spell prove
