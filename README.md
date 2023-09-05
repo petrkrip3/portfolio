@@ -1,1 +1,1 @@
-circus failed went drew climb fog half hurried hide soon liquid vowel finger straw life
+loose lie taken tribe vast zulu found labor generally living heard court captain check obtain
