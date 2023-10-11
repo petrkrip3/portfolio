@@ -1,1 +1,1 @@
-strong fox running while hard fresh softly winter tank escape perhaps bank cream leg talk
+stomach hungry subject telephone quietly became fresh body gulf blood position my cut alphabet information
