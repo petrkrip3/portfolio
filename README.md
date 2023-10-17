@@ -1,1 +1,1 @@
-bare knife skin bread snow mud period come spoken border citizen break differ balance minute
+stream log outline soft stop printed thank running visitor kind parent comfortable between possibly near
