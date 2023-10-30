@@ -1,1 +1,1 @@
-worry strike solid excitement studying angry dear sale driven square disappear fear enough path wrote
+store explain today feature we animal electric wind safe vegetable grandfather clothing mother business noise
