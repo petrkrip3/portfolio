@@ -1,1 +1,1 @@
-magnet lower live rise sold more blow studied kitchen steel income swept mass walk teacher
+fifth horn frozen specific weak frog mine least changing especially lose alphabet impossible who smile
