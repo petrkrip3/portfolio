@@ -1,1 +1,1 @@
-percent nature letter soil surrounded finger mad temperature older zebra donkey middle studied lonely dawn
+bend dig judge immediately police forgot hold drawn bush giving shine try former sky known
