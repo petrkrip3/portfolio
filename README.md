@@ -1,1 +1,1 @@
-individual cause fighting start protection blanket canal across pride whose bare without trunk prize colony
+whispered time knew government minerals determine rhyme built market believed gently heart mighty hungry freedom
