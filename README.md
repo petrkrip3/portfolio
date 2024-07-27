@@ -1,1 +1,1 @@
-donkey known animal plain capital foreign feed great peace level straw care definition largest gulf
+century active pot spite chance palace rich clean love half dried medicine replace depend pattern
